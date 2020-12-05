@@ -1,2 +1,0 @@
-# Rizwan-XD.
-Alhamdulillah Mampir
